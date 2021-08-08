@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lockric
+- 👀 I’m interested in Developling a litany of things, software and hardware related.
+- 🌱 I’m currently learning the basics
+- 💞️ I’m looking to collaborate on N/A
+- 📫 How to reach me: N/A
